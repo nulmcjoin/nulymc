@@ -1,0 +1,2 @@
+# nulymc
+join to saluran
